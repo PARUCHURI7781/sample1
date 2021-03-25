@@ -13,4 +13,4 @@
    1. CHAHAR 
 
  
-![Alt Text](https://english.cdn.zeenews.com/sites/default/files/2020/10/04/890468-fafduplessisipl.jpg)
+![Alt Text](https://imgk.timesnownews.com/story/Ruturaj_Gaikwad_CSK_PTI66_0.jpg?tr=w-1200,h-900)
