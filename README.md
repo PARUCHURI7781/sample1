@@ -13,4 +13,4 @@
    1. CHAHAR 
 
  
-![Alt Text](https://imgk.timesnownews.com/story/Ruturaj_Gaikwad_CSK_PTI66_0.jpg?tr=w-1200,h-900)
+![Alt Text]https://c.ndtvimg.com/2020-10/1uorp74o_gaikwad-bcci-ipl_625x300_30_October_20.jpg
