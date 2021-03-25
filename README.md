@@ -13,4 +13,4 @@
    1. CHAHAR 
 
  
-![Alt Text](https://cdn.insidesport.co/wp-content/uploads/2021/03/24135357/0-22.jpg)
+![Alt Text](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSKekEFEVqLms4JhUu0Zqm8es1Sj9yJ5vnVLw&usqp=CAU)
