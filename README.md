@@ -10,4 +10,7 @@
    * SHARDUL THAKUR 
 
 1. BOWLERS 
-   1. CHAHAR
+   1. CHAHAR 
+
+![GitHub Logo](/images/logo.png) 
+Format: ![Alt Text](url)
